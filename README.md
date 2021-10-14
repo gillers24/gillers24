@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... don't, honestly, save yourself the time and stress
 - 😄 Pronouns: ... Her/She
 - ⚡ Fun fact: ... completely winging it ;o)
+- IF YOU HAVE ANY SELF OF WORTH.... DO NOT GO ANYWHERE NEAR THIS; IT IS JUNK!!!!! 
 -->
